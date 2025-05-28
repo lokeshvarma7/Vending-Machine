@@ -76,5 +76,5 @@ Please correct me if I was wrong. 😊
 ## 📬 Contact
 
 📧 Email: [lokeshvarmap2004@gmail.com](mailto:lokeshvarmap2004@gmail.com)  
-🔗 LinkedIn: [Pulipati Lokesh Varma]([www.linkedin.com/in/pulipati-lokesh])
+🔗 LinkedIn: [Pulipati Lokesh Varma](www.linkedin.com/in/pulipati-lokesh)
 
